@@ -1,1 +1,1 @@
-# Pool-Layout-Capture
+# Pool Layout Capture のプライバシーポリシー
